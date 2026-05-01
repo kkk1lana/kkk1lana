@@ -56,7 +56,7 @@
 
 
 <p align="center">
-  <img src="https://pbs.twimg.com/media/HHQEmE9X0AAtSDV?format=png&name=small" 
+  <img src="https://media.discordapp.net/attachments/1494291322721407090/1496232395404214393/E3E4B578-5384-4E71-817B-16E51B3506D3.jpg?ex=69f65181&is=69f50001&hm=74b5bd7d98a2034f2eed6c5b1dc53a7a61a3ab19211a70faf369f43d042a7dbf&=&format=webp" 
 " />
 <h2 align="center">A letter to a special friend (Grigore)</h2>
 
