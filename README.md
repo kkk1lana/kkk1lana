@@ -18,3 +18,54 @@
 " />
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=18&pause=2500&color=F7F7F7&center=true&vCenter=true&width=1200&lines=My+dear+Arthur,+You+never+showed+up,+and+now,+after+looking+at+the+newspapers+I+understand+why.;I+don't+imagine+you+will+receive+this+letter+but+I+nonetheless+must+send+it.;Arthur,+oh,+Arthur.+I+was+just+starting+to+dream+the+silliest+and+softest+of+dreams.;I+miss+you,+and+I+will+always+miss+you+but+I+cannot+live+like+that,+and+it+seems+you+cannot+live+any+other+way.;When+I'm+with+you,+the+world+makes+sense;+but+when+we+are+apart,+I+see+clearly+that+your+world+is+not+a+world+from+which+one+can+escape.;I'm+so+sorry,+for+everything,+for+everything+long+ago+and+for+starting+up+that+business+again.;There's+a+good+man+within+you,+Arthur,+but+he+is+wrestling+with+a+giant.;And+the+giant...+wins,+time+and+again.;You've+broken+my+heart,+again,+and+I+fear+I+have+broken+yours.;For+that,+I+will+never+forgive+myself+but+you+must+let+me+go+now.;I+enclose+a+ring+you+gave+me+many+years+ago,+when+we+were+both+young,+not+because+I+don't+like+it,+but+because+I+care+for+it+far+too+much+and+it+reminds+me+too+much+of+you.;I+hope,+one+day...+you+will+find+some+people+in+love+who+can+use+this,+for+it+kept+me+thinking+of+you+all+these+years.;and+I+hope+by+returning+it+to+you+I+can+finally+be+free.;Goodbye)
+
+
+
+​​​​​
+
+​​
+​
+​
+&nbsp;
+​​
+
+
+&nbsp;
+
+
+&nbsp;
+
+
+
+
+
+
+
+
+&nbsp;
+&nbsp;
+
+
+
+
+
+
+
+<p align="center">
+<b>Little Surprise for a Special Friend </b>
+
+
+<p align="center">
+  <img src="https://pbs.twimg.com/media/HHQEmE9X0AAtSDV?format=png&name=small" 
+" />
+<h2 align="center">A letter to a special friend (Grigore)</h2>
+
+<p align="center">
+I'm more than glad I found someone like you to be my best friend, and I hope you know that I cherish you more than anything. As funny as you are, you're also kind, and it makes you perfect in your own way.
+<br><br>
+Who would've thought that if that one day I didn't get online, I wouldn't have met you? So I have no regrets that fate brought us together.
+<br><br>
+I LOVE and APPRECIATE you, and I always will—each second, minute, hour, day, week, month, and year of my life.
+</p>
+
+   
